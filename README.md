@@ -1,0 +1,2 @@
+# zhiosinaga
+Gk terlalu penting
